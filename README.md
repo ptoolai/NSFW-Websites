@@ -2,7 +2,7 @@
 
 ## Websites
 * [[NSFW AI Art Generator]](https://www.ptool.ai)
-* [[Undress AI]](https://www.ppnude.com)
+* [[Undress AI]](https://www.ppnude.com/undress-ai)
 * [UndressPro.ai](https://undresspro.ai)
 * [Undressing.ai](https://undressing.ai)
 * [Alt text](https://www.vancouvercoir.com/free-undress-ai)
