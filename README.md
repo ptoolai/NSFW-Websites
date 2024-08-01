@@ -1,8 +1,8 @@
 ## <b>[PTool.AI (recommended best service)](https://www.ptool.ai)</b>
 
 ## Websites
-* [NSFW AI Art Generator](https://www.ptool.ai)
-* [Undress AI](https://www.ppnude.com)
+* [[NSFW AI Art Generator]](https://www.ptool.ai)
+* [[Undress AI]](https://www.ppnude.com)
 * [UndressPro.ai](https://undresspro.ai)
 * [Undressing.ai](https://undressing.ai)
 * [Alt text](https://www.vancouvercoir.com/free-undress-ai)
